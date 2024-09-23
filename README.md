@@ -2,7 +2,7 @@
 - 👀 I’m Technical Support Engineer
 - 🌱 I’m currently learning Next Js
 - 💞️ I’m looking to collaborate on software developments projects
-- 📫 How to reach me on email ast02217@uoeld.ac.ke
+- 📫 How to reach me on email davismurage.dm9@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I am an avid chess player 
 
